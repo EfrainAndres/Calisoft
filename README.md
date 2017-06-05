@@ -1,3 +1,1 @@
 # Calisoft
-
-Paisa es Gay
